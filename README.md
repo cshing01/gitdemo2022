@@ -1,3 +1,7 @@
 # gitdemo2022
 
-this is a sample change that wont do anything lol
+how to be rich 
+
+1. buy dodge
+1. lose money 
+1. ignore step 2
